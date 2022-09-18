@@ -1,0 +1,1 @@
+# oikotie-asunnot-skripti
